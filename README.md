@@ -1,1 +1,1 @@
-# ilyen-saj-t-munkaiz-biz-e
+# keszul az oldal skanok
